@@ -1,5 +1,3 @@
-# Notorious111
-
 ![Notorious111 Logo](notorious_111_type_k_layered.png)
 
 We're a creative brand studio that cracks brands wide open to help them build, claim, reveal, and expand their greatness.
